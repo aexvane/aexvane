@@ -1,0 +1,1 @@
+Hi, I am a Computer Engineering graduate with a passion for data integrity, visualization, and mathematics. I am excited to apply my passion for data and contribute my abilities in quantitative modeling and experimentation to enhance the experience of the data-driven world.
